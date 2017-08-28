@@ -10,3 +10,5 @@ Reasons I want to Sleep
 4.) People Scare me.
 
 5.) I'm a werewolf.
+
+6.) The sun hurts
