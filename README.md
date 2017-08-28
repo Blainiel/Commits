@@ -36,3 +36,5 @@ Reasons I want to Sleep
 17.) I dislike lists.
 
 18.) This just seems like the easiest way.
+
+19.) Sleep is like practice for death.
