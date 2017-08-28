@@ -14,3 +14,5 @@ Reasons I want to Sleep
 6.) The sun hurts
 
 7.) I got in a car accident.
+
+8.) People in dreams are nicer.
